@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **Any web application**
 
-- 💬 Ask me about **Java, SpringBoot, MySQL, Maven, Google Cloud Platform, Kubernetes, JPA, RestAPI, Jenkins**
+- 💬 Ask me about **Java, SpringBoot, MySQL, Maven, Google Cloud Platform, Kubernetes, JPA, RestAPI, Jenkins, IoT**
 
 - 📫 How to reach me **samartha.hathwar@gmail.com**
 
