@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1gqzwMoYFDLFQhIKtfhurW-0TQwInruyA/view?usp=drive_link](https://drive.google.com/file/d/1gqzwMoYFDLFQhIKtfhurW-0TQwInruyA/view?usp=drive_link)
 
-- ⚡ Fun fact **I love football and any outdoor sports, I very chill and easy to work with.**
+- ⚡ Fun fact **I love football and any outdoor sports, love playing games on playstation.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
